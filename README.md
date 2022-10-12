@@ -1,1 +1,1 @@
-### [Поглядеть тут:](https://qaklukvaaga.ru) ✊
+### Поглядеть тут: [qaklukvaaga.ru](https://qaklukvaaga.ru) ✊
